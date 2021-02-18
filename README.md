@@ -1,1 +1,14 @@
 # no1
+<p>[##_Image|kage@Blq9P/btqXD3Uf0mM/22cL6cs8ENak3LRqSbGff0/img.png|alignLeft|data-filename="blob" data-origin-width="860" data-origin-height="498" width="640" data-ke-mobilestyle="widthContent"|마리골드꽃||_##]</p>
+<p>어릴적 담장 밑에 곱게 심겨졌던 꽃이 마리골드였다는 사실을 성인이 되어서야 알겠되었습니다. 어머니는 화단과 담장밑에 항상 꽃을 심었는데 그중에 하나가 마리골드였습니다.&nbsp;</p>
+<p>마리골드꽃이 가지고 있는 효능을 찾아보니 눈이 충혈되면서 붓고 아픈 증상에 효과가 있으며, 구강 인후염에도 효과가 있다고 합니다. 또 건조한 피부와 습진에 국소적으로 사용이 가능하다고 합니다. <br />외용제로 상처의 치료에도 사용한다고 합니다.<br />건강프로그램에서 많이 소개되고 있는 마리골드꽃은 특히 눈에 효능이 있습니다. 잘 알다시피 루테인,지아잔틴과 아스타잔틴 성분이 함유되어 황반의 색소 밀도를 유지하게 합니다.<br />마리골드꽃을 한방에서는 열을 식히고 화기를 제거하는 효능이 있고, 열로 인해 생긴 열혈을 지혈하는 효능이 있다고 봅니다.</p>
+<p>[##_Image|kage@ptUqh/btqXHf7JdBh/HU8exrDXLkIgSxRJlEB9Kk/img.png|alignLeft|data-filename="blob" data-origin-width="842" data-origin-height="806" width="640" data-ke-mobilestyle="widthContent"|정상 안저||_##]</p>
+<p>황반은 망막에서 시세포가 밀집되어 있는 부분으로 빛을 선명하고 정확하게 받아들이는 중요한 곳입니다.<br />황반변성은 주로 65세 이상의 고령자에게 실명을 일으키는 질병으로 안구가 노화 되면서 황반이 약해져 생기게 된다고 합니다. <br />최근에는 노년층 뿐만 아니라 고도근시 보유자들에게도 생기고 있습니다. 고도근시로 인해 안구가 길어지게 되고 근시가 멈추지 않고 계속 진행되면 황반에도 문제가 생기게 되고 황반 변성이 오게 된다고 합니다.&nbsp;<br />노년층뿐만 아니라 젊은이도 눈건강에 주의해야겠습니다.</p>
+<p>[##_Image|kage@THbOT/btqXHg6IgMI/v2xpHIEnRcaOAlcQ7pj1i1/img.png|alignLeft|data-origin-width="1046" data-origin-height="643" width="640" data-filename="blob" data-ke-mobilestyle="widthContent"|루테인 오메가 3||_##]</p>
+<p>안구건조증이 심하고 알러지도 심해서 눈건강에 항상 예민한 편입니다. 일년내내 인공누액과 알러지약을 복용하고 있습니다.&nbsp;<br />주기적으로 안과에서 상담과 녹내장, 백내장 검사도 하고 있습니다. 나이가 들면 마음은 청춘인데 몸은 내몸이 아니라는 느낌이 확 옵니다. 계단오르기도 힘들고 잠깐의 달리기에도 숨이 차오르는 것을 느낍니다.&nbsp;</p>
+<p>[##_Image|kage@Edgru/btqXD3Uhgep/Hy4M1iTmttrClIeJK4gu60/img.png|alignLeft|width="640" data-filename="blob" data-origin-width="543" data-origin-height="329" data-ke-mobilestyle="widthContent"|마리골드꽃||_##]</p>
+<p>요즘 복용하고 있는 건강기능식품은 루테인 오메가3입니다. 오메가3와 루테인을 한번에 복용할 수 있어 좋습니다. 복용하는 약 갯수가 많다보니 자꾸 잊어버리게 되어 찾던중 종*당 루테인 오메가3를 찾게 되었습니다.&nbsp;<br />종*당 뿐만 아니라 다른 제약사도 많은 제품이 나오고 있습니다.&nbsp;<br />가격과 성분을 살펴보고 적당하다 싶어 복용하게 되었습니다. 복용전과 비교하면 일단 간편해서 좋습니다.&nbsp;<br />기존에는 루테인 따로 오메가3따로 먹게 되니 캡슐크기도 부담스럽고 갯수도 부담스러웠던게 사실입니다.<br />캡슐의 크기가 조금더 작게 나오면 하는 바램은 여전합니다. 이 부분은 계속 찾아 봐야겠습니다.<br />어디선가 분명 작고 함량도 많은 오메가3와 루테인 복합캡슐이 있을것 같습니다.</p>
+<p>[##_Image|kage@QFr4M/btqXHfzY6z2/a5OmhqkHz23esOou0THTp0/img.png|alignLeft|data-origin-width="588" data-origin-height="421" data-filename="blob" width="640" data-ke-mobilestyle="widthContent"|루테인오메가3||_##]</p>
+<p>제가 복용하고 있는 루테인 오메가3의 성분들을 살펴보면, 마리골드꽃 추출물(루테인, 지아잔틴, 등), 베타카로틴, 비타민A, 비타민E, EPA 및 DHA가 함유되어 있습니다.</p>
+<p>마리골드꽃 추출물은 노화로 인해 감소될수 있는 황반색소밀도를 유지하여 눈건강에 도움을 줍니다.<br />베타카로틴과 비타민A는 어두운 곳에서 시각적응을 위해 필요하며, 피부와 점막을 형성하고 기능을 유지하는데 필요합니다. 상피세포의 성장과 발달에도 필요합니다.<br />비타민E는 유해산소로부터 세포를 보호하는 역할을 합니다.<br />EPA와 DHA는 혈중의 중성지질을 개선하고, 혈행개선, 건조한 눈을 개선하여 눈건강에 도움을 줄 수 있다고 합니다.<br /><br /></p>
+<p>열심히 복용해서 눈건강을 꾸준히 유지하겠습니다.</p>
